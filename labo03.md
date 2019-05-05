@@ -1,0 +1,1 @@
+Jupiter is vanaf de zon gezien de vijfde en tevens grootste planeet van ons zonnestelsel.
